@@ -5,20 +5,20 @@ Created time: July 23, 2023 4:46 PM
 
 ---
 
-week: “round of 727”
+week: round of 727
 
-category: “highlights”
+category: highlights
 
-country: “zion”
+country: zion
 
 authors:
 
-- “author1”
-- “author2”
+- author1
+- author2
 
 table_of_contents: true
 
-title: “default”
+title: default
 
 ---
 
