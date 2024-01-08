@@ -7,7 +7,7 @@ Created time: July 23, 2023 4:46 PM
 
 week: round-of-727
 
-category: recaps
+category: champion_of_zion
 
 country: zion
 
@@ -21,15 +21,3 @@ table_of_contents: true
 title: default
 
 ---
-
-## Chapter 1
-
-blablablabl
-
-## Chapter 2
-
-nalbaablabablal
-
-## Chapter 3
-
-blabalbal
