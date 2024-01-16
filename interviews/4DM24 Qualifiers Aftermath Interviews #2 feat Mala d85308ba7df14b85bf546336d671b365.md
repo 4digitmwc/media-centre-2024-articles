@@ -26,7 +26,7 @@ JayLye: In my opinion yes, this does help a lot.
 
 ***Speaking of new players, one player that I noticed is on the team is Evirir. A Malaysian player who happened to be studying in America attending University of Washington! How will you guys try to approach match times that may tailored to his availability?***
 
-[https://lh7-us.googleusercontent.com/RIPOfnwtjkJFPqfuaPUOcb_N-czYimxcMiG8qk_vIv1IPl2YcL-MnZJmrwTRqNGqWhg9P_ZppLn0xioWWe8RM5enk30Td0etSCYALlDv4wBOQvhwdHKBTrxlj0-TUlD8qGGRdCzmw6Rgr3wtZVa4AwA](https://lh7-us.googleusercontent.com/RIPOfnwtjkJFPqfuaPUOcb_N-czYimxcMiG8qk_vIv1IPl2YcL-MnZJmrwTRqNGqWhg9P_ZppLn0xioWWe8RM5enk30Td0etSCYALlDv4wBOQvhwdHKBTrxlj0-TUlD8qGGRdCzmw6Rgr3wtZVa4AwA)
+![](https://lh7-us.googleusercontent.com/RIPOfnwtjkJFPqfuaPUOcb_N-czYimxcMiG8qk_vIv1IPl2YcL-MnZJmrwTRqNGqWhg9P_ZppLn0xioWWe8RM5enk30Td0etSCYALlDv4wBOQvhwdHKBTrxlj0-TUlD8qGGRdCzmw6Rgr3wtZVa4AwA)
 
 Stygix: Of course, we need him since he is our main SV carry. We will find a suitable time for us and Evirir to play.
 
