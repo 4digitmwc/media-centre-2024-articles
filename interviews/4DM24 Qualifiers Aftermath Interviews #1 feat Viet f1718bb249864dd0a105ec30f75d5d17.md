@@ -1,0 +1,141 @@
+# 4DM24 Qualifiers Aftermath Interviews #1 feat. Vietnam, Italy, & Czech-Slovakia!
+
+Subhead: Hear the thoughts of Seed #1 Vietnam, a new & improved Italian team, & a brand new team qualifying in their first appearance!
+
+**Vietnam**
+
+***I am here with Team Vietnam! How is everybody doing?***
+
+TvS SorAKuN: It's been great.
+
+[LS]Vixile: Great! I'm fine overall.
+
+Rxizuna: I’m doing good, I just finished lunch and was about to take a nap until this came.
+
+***That's great to hear! So first off, congratulations on getting the first seed in 4DM! Considering this country has made a big jump going from seed 18th last year to the first seed. What was the process like heading into the qualifiers lobby and what were you guys' thoughts the moment you got the coveted first seed?***
+
+[LS]Vixile: I was quite nervous before heading into the qualifier lobby, haha. We did solid overall, a couple of chokes here and there, but upon discovering that we got the top seed, I was euphoric
+
+Rxizuna: I felt pretty chill honestly, a little bit shaky at the start but after the first score my head was cool throughout the rest of the game because i knew we were gonna get a good seed but I never expected it to turn out this well.
+
+TvS SorAKuN: Everything's mostly the kind of process you would expect from tournament players, we warmup 1-1.5 hours before the match, checking our lineups, reminding each other when and when not to MR, and noting other potential distractions such as windows key, hiding ingame scores as well.
+
+This morning, I woke up and watched the results showcase VOD, I agreed with my team yesterday that we are expecting seeds 3-4 because our Stage 1, 4, and 5 scores were pretty mid. But when I saw seed 3, still no signs of Vietnam, I thought "Oh no way man, no way, we are getting seed 2". But then Malaysia appeared as seed 2, and my hands were on my head for about 2 mins knowing we got seed 1 for sure. Honestly, this is one of my most shocking results I've ever gotten in a tournament after 6 years of playing, and again I can't thank my team enough for this.
+
+Rxizuna: I had the same reaction.
+
+***(To [LS]Vixile & TvS SorAKuN) What was the biggest difference you guys had seen considering this team had the biggest jump from 2023 to 2024?***
+
+[LS]Vixile: Well, one big difference is that I was able to do LN better now. Furo also has had his skill boost ever since the first months of 2023. Overall, I can say that the old team (me, Sora, furo and tokiyume) has had their skill boosted a lot compared to the last tournament. And another major difference is this guy (Rxizuna). His considerable contribution has been proven priceless to our team, and I honestly can't thank him enough for that.
+
+Rxizuna: <3
+
+TvS SorAKuN: I would say that my mental management has improved a lot, last year I had the "perfectionist" mindset when I would get really upset if I don't PB or tie PB in the real match. As time passed by, I learned that there are a number of factors that will affect my performance in game, whether nerves or distractions, and it's completely okay to get something that's 5000 points lower than PB. Moreover, last year we were struggling on mid-late game LNs. Now with the addition of Rxizuna and the insane improvement of Furo and Vixile, we became much more confident on such maps
+
+***With this newfound confidence and result from the qualifiers, there must be a ton of expectations from this team and everyone else. Have you guys been in this position before and how do you manage the stress over the next few weeks?***
+
+[LS]Vixile: To be honest... I think we are just doing our thing. We are trying to minimize as much pressure as possible. We don't get other teams or our supporters or haters to get to us. Of course, it's great receiving compliments and all, but I think it's better if we are able to keep a cool head and contribute to this tournament in our own ways.
+
+TvS SorAKuN: Given the performance of Furo, Rxizuna, and Vixile in the most recent FFA tournament, GB Cup Autumn 2023, it is no surprise that we are receiving numerous expectations and pressures. At the end of the day, all we would do is try our best and look at the bright side of things to maintain the performance. And of course, have a clear plan of what to do before the next match.
+
+***One more question, which teams is Vietnam keeping a close eye on during the tournament?***
+
+[LS]Vixile: For me personally, I'm keeping an eye on the Taiwan team. They are mysterious to me, and I don't have much info on them. Another team to watch out for is US, since according to seeding, we will face them in SF. Their scores are definitely worth watching out for.
+
+TvS SorAKuN: We have a number of teams in our minds that will put us on a great challenge, but personally, Taiwan is the team that will continue to surprise everyone. They are in the same role as China last year, full of unknown players who have rarely or never played in any notable tournaments before, and they will utilize that inconspicuity to catch every other team off guard. I have a feeling in mind that they have a high chance of repeating what China has done last year.
+
+***That’s all from me, thank you guys for answering and I just want to say best of luck to your 4DM journey!***
+
+Rxizuna: Thank you! Luv you
+
+[LS]Vixile: Thank you! We appreciate that we have the chance to be in this interview. We are looking forward to a fun tournament ahead!
+
+TvS SorAKuN: Thanks for having us in, have a good one, and best to the 4DM staff!
+
+**Italy (Ft. Kiraz)**
+
+***I am here with Italy! How are you guys doing today?***
+
+24Marzo: Good.
+
+[SPNG]Sib3riaN: skillboosting
+
+antony88fayah: reverse skillboosting
+
+angela202133: yeah skillboosting
+
+ricetoasty: skillregressing…
+
+***So first off, I want to congratulate Italy on finishing in Seed 12 of 4DM24 Qualifiers! This was a big leap of progress considering last year, Italy qualified for 27th on the qualifiers. What are your thoughts upon the seeding?***
+
+angela202133: Dawid and Kiraz are gods
+
+[SPNG]Sib3riaN: My thoughts are that we should have been at least top 8. But it’s a big improvement and I'm really happy about it. I think from our skills we could have been easily top 6 if we didn't missed.
+
+24Marzo: I’m content but I underperformed in rice
+
+antony88fayah: I mean, we're likely all proud of the seed placement but, we could have done better. We kinda underperformed on rice and our third LN player is banned. we had to shuffle around to cover everything xD but ye, we did great.
+
+ricetoasty: considering we even lost our third LN player, as a strictly RC player, I'm mostly just amazed at how hard some players (angela202133 and antony88fayah) are skillboosting. I didn't really expect us to break through Top 16 tbh. It was a nice surprise.
+
+***(To Kiraz, [SPNG]Sib3riaN, & antony88fayah) What was the biggest difference Italy had seen after 4DM23 that is able to field such a strong team for 4DM24?***
+
+antony88fayah: well um.. a lot of things changed actually. I think that the Italian community overall has improved greatly, and we have a more balanced team overall. It’s kind of a shame to see Kiraz go away from the competitive scene. We would have loved to play with him for a tournament or two more but.. it'll allow a new player to get experience. I think our overall improvement will make us get far.
+
+Kiraz: I think the main difference is the mentality of players, last year Italy was confident on getting a high placement. Maybe a bit too much confident so we kinda underestimated pools and other teams. This year, the community has grown, with the second edition of the Italian Cup taking place, a lot of new players came into the tournament scene and proved that they were good to compete in 4DM
+
+[SPNG]Sib3riaN: I think that we underestimated the difficulty too. We were ready for something more acc than push. We also got carried away by the difficulty of other years because last year was much more difficult than other years.
+
+antony88fayah: Indeed. Me, [SPNG]Sib3riaN, and michxxx (4DM23 Italy Player) had NO experience with tournaments whatsoever if i remember correctly. So we just.. had no idea xD. I guess we saw tournament scores be around 980k and we thought "Oh! so this must be acc oriented". And then we got destroyed.
+
+***Now with this seed, you guys will face a brand new Singapore team, the country that finished 2nd last year. And assuming you guys win against Singapore, the #5 Philippines might stand in your way. What is Italy's strategy heading into the bracket stage?***
+
+24Marzo: Good question.
+
+antony88fayah: First of all, woops I thought Singapore won. Second of all uh, I suppose just analyze what the enemy team might struggle against. Maybe look at a couple of replays from each player. Notice what the LN players struggle against as in, what kind of LN. But our main strategy will be getting gud tbh xD
+
+[SPNG]Sib3riaN: I think it's better not to give information to the enemy xD. So no comment from me
+
+***So my final question is, Considering Italy has never won a bracket match since brackets were introduced in 4DM (Italy is 0-4 since 2022), and with how strong this team has greatly improved, where do you guys realistically see this team get to which round?***
+
+antony88fayah: We’ve got a dream. I say we can get to SFs. If not, Hopefully, we can get a good match in QFs.
+
+24Marzo: Kiraz said we’ll place above the seed and I trust him fully.
+
+[SPNG]Sib3riaN: I think finals in the loser’s bracket
+
+angela202133: Semifinals.
+
+***Well, thank you guys for allowing me to interview you guys! Best of luck to Italy in 4DM! Grazie Mille!***
+
+24Marzo: Prego mille.
+
+[SPNG]Sib3riaN: Thank you so much!
+
+angela202133: My pleasure.
+
+antony88fayah: No problem!
+
+**Czech Republic & Slovakia**
+
+***Congratulations on getting the last seed in 4DM24! Considering this is both Czech & Slovakia's first appearance in 4DM, what does this mean to you guys knowing this team has gotten a spot in the bracket stage?***
+
+Kiruliatkoska: We are really excited about qualifying in 4DM24, even though it was really close, this is the first time Czechia or Slovakia had what it takes to qualify in a tournament like this. Now we wish to only improve in further tournaments.
+
+TicTimeless: The Czechia-Slovakia Team and the community that supported us on the way are all thrilled about this exciting event. We are glad our efforts were enough to seed at least in the Top 32.
+
+***This is the first time we're seeing 2 countries joining together to form one team. This isn't an uncommon practice in the taiko scene, yet this is a first-of-a-kind here in 4DM. What are your thoughts on this rare circumstance***?
+
+Kiruliatkoska: Since the Czech Republic and Slovakia are small countries and we don't have much of a big community, especially in mania, we decided that we will merge together just like they did in taiko and we are also glad that the merge in 4DM was successful.
+
+TicTimeless: We had to take some inspiration from the taiko scene to merge Slovakia and Czechia together since we have a shortage of players in Slovakia and we aren't all skillful in every type of beatmaps, so we had to combine our powers with Czechia.
+
+***Is there a long-term goal in terms of what the Czech Republic & Slovakia want to accomplish as a community in the 4-digit scene?***
+
+Kiruliatkoska: We don't have any long-term goals as a 4-digit Czech and Slovak community, we just wanted to give this year's 4DM a try and we are thrilled that we managed to qualify.
+
+***What is this team's goal for this iteration of 4 Digit Mania 2024?***
+
+Kiruliatkoska: Our team's goal is to give it our all and try our best to successfully represent Czechia and Slovakia and we are happy to even have the opportunity to compete!
+
+TicTimeless: We joined the 4DMWC without expecting anything, for the sole purpose of just to have fun, fortunately, we managed to qualify. Although the next match will be pretty cruel, we are hoping to seed in a reasonable spot in the losers' brackets.
