@@ -112,8 +112,6 @@ oliverq: For real, we are gonna call them mortal enemies and end the match with 
 
 diamondBlaze: I just realized I got a mysterious DM a month ago that was like "heyyyy can't wait to see you guys in bracket". it was AxReo
 
-[https://lh7-us.googleusercontent.com/eyNmewj-0woL89b6ze0YeuLcc2-97wpx9ZzGcdbVVj2NgZpAMr4QCbmzZjxwDEBi6gUitmgQSgFH-lLYsiCpt69_fbgkhHku8zr9dk9d8ELVEDYUOO8xEoFRcUfTclz_aKAe6VyqI3B4M7RNT57gXNw](https://lh7-us.googleusercontent.com/eyNmewj-0woL89b6ze0YeuLcc2-97wpx9ZzGcdbVVj2NgZpAMr4QCbmzZjxwDEBi6gUitmgQSgFH-lLYsiCpt69_fbgkhHku8zr9dk9d8ELVEDYUOO8xEoFRcUfTclz_aKAe6VyqI3B4M7RNT57gXNw)
-
 Johnney101: HE KNOWS, BAN SV AT ALL COSTS. WE DON’T STAND A CHANCE. WE HAVE LEARNT THIS TWICE. WE DON’T HAVE A CHANCE AGAINST JAPAN ON SV!!!!
 
 diamondBlaze: NO! WE FIGHT LIKE MEN!
