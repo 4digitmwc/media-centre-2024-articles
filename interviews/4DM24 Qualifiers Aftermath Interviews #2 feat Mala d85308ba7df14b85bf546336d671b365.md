@@ -1,0 +1,175 @@
+# 4DM24 Qualifiers Aftermath Interviews #2 feat. Malaysia, Sweden, & Russia!
+
+Subhead: Hear the thoughts of Seed #2 Malaysia, a Swedish team making Top 10 for the first time, and Russia returning to the Bracket Stage after narrowly missing out!
+
+Malaysia
+
+***Congratulations on finishing 2nd in 4DM qualifiers! Any thoughts with the 2nd seed?***
+
+Stygix: Unexpected. We’re only targeting high seeds with this new set of players. 2nd seed without me playing is just wow though it's not gonna change anything even with me playing :joy:. I’m proud of this team.
+
+JayLye: Thanks! To be honest I'm shocked because this was way beyond my expectation.
+
+YtAlbin0: I’m pretty shocked and surprised that we got the 2nd seed since most of us are new players.
+
+Fuuneral: First tourney, didn't expect such a high seed
+
+ReJust: still new to tournaments but didn't really expect much since captain wasn't able to play, and most probably the highest seed Malaysia ever gotten
+
+Evirir: This is the highest seed I've ever had in any tournament, so I am very happy with it. My teammates really carried hard. Also really glad that in such a strong team I was able to contribute anything.
+
+***(To StyGix & JayLye) Last year, when I interviewed Malaysia, the team is filled with veteran players. This time, Malaysia have 4 new players joining. Considering Malaysia has a strong mania community due to osu!mania Malaysia tournament, has this exposure help with this country fielding new and strong players?***
+
+Stygix: We did scout for new players after last year's 4DM and ommt definitely helped us finding new players like YtAlbin0, ReJust, and Evirir. While Fuuneral, I just met him in multi :joy:. I hope this new set of players can continue carrying Malaysia flag in the future 4DMs.
+
+JayLye: In my opinion yes, this does help a lot.
+
+***Speaking of new players, one player that I noticed is on the team is Evirir. A Malaysian player who happened to be studying in America attending University of Washington! How will you guys try to approach match times that may tailored to his availability?***
+
+[https://lh7-us.googleusercontent.com/RIPOfnwtjkJFPqfuaPUOcb_N-czYimxcMiG8qk_vIv1IPl2YcL-MnZJmrwTRqNGqWhg9P_ZppLn0xioWWe8RM5enk30Td0etSCYALlDv4wBOQvhwdHKBTrxlj0-TUlD8qGGRdCzmw6Rgr3wtZVa4AwA](https://lh7-us.googleusercontent.com/RIPOfnwtjkJFPqfuaPUOcb_N-czYimxcMiG8qk_vIv1IPl2YcL-MnZJmrwTRqNGqWhg9P_ZppLn0xioWWe8RM5enk30Td0etSCYALlDv4wBOQvhwdHKBTrxlj0-TUlD8qGGRdCzmw6Rgr3wtZVa4AwA)
+
+Stygix: Of course, we need him since he is our main SV carry. We will find a suitable time for us and Evirir to play.
+
+JayLye: This can't really be decided for now, but we will try our best to make sure everyone gets to play in the match
+
+YtAlbin0: Prayge and hope he’s available to play.
+
+Fuuneral: Early rounds, either we let Evirir rest or if really needed, we adjust the schedule accordingly
+
+Rejust: Either he has to wake up at a very late time or the other 5 of us that is in Malaysia have to play at a time that suits his schedule.
+
+Evirir: Time to wake up at 4am
+
+***Being the 2nd seed team, is there a team you guys are keeping an eye on?***
+
+Stygix: Pretty much all the top-seeded teams and a few high-seed teams if we’re planning to go all the way. This year’s 4DM is really stacked tbh. Especially our SEA rivals like the Philippines and Vietnam
+
+JayLye: Quite a lot, there are a lot team that did well on another skillsets like Sweden, Taiwan, Vietnam etc
+
+YtAlbin0: Probably teams that are good at rice.
+
+Fuuneral & Evirir: Vietnam.
+
+Rejust: Yes there are two teams, Vietnam and Taiwan
+
+***Thank you for answering these questions and best of luck to Malaysia in 4DM24!***
+
+StyGix: :thumbsup:
+
+Sweden
+
+***Congratulations on finishing in Seed 7 in 4DM Qualifiers! This is the highest seed Sweden has ever gotten. How do you guys feel about your performance overall?***
+
+NeonDrakon: Genuinely one of the coolest moments of my time playing mania, was expecting far from it with how stacked all of the rosters were this year.
+
+Johnney101: Well personally, I was extremely surprised seeing us even go past the top 12, let alone seed 7. The suspense from waiting for our country to pop up was making my heart beat out my chest lol. Also shocked to see our placement so high even after thinking I threw on stage 3.
+
+oliverq: I'm happy with it. I was optimistic from the start and was doing the math from other teams' scores so I knew we were almost definitely gonna be between 10 and 6 but that doesn't take away from how insane it is not only are we no longer weak at LN but we improve at everything else too. I think it's gonna be a fun tournament and its fun to play LN (the same thing I played last year) and actually know how to play it!
+
+diamondBlaze: Feeling pretty good overall! Shocked, honestly. I've been extremely impressed with our teammates' scores, but I think the sheer difficulty of the qualifiers kinda fooled me... It's good to know that until seeding drops, you can't tell Seed 7 from Seed 26 haha
+
+***(For NeonDrakon, oliverq, diamondBlaze, and Johnney101) Now, this is a rare occasion that everyone from last year’s roster has returned. Adding in Emik & Lotus779, how much did you guys improve overall and do you think this seeding has reflected on the improvements over the last year?***
+
+Johnney101: Emik did so much to improve our SV average (was already high from all other tourneys) as he is INSANE at that. Also saved me from having to remember the map myself since he beat my personal best by over 20k.
+
+NeonDrakon: It has been super cool to see everyone improve in the last 3 years that we four have played 4dm together, especially Johnney and oliverq who have improved so much since then. So I think that has been a large part in our gradual improvement in seeding, but also adding Emik which has a super good physical foundation and being arguably the best Swedish SV player to boot along with Lotus779 which has the zoomer skill boost have and will add a lot to our potential this year in my opinion!
+
+diamondBlaze: Honestly, I've been really busy with schoolwork for most of last year, so the last time I played heavily was MWC. Instead, I've been spending a lot of time on other rhythm games, like DDR. I guess it must've improved my sense of reading/rhythm, because that's what went the best for me.
+
+All three other OGs have been grinding like crazy though ^^ Oliver is a full-fledged LN demon now, Johnney is still a rice beast, and Neon as the new captain has been a total jack of all trades. Basically, there's an extremely reassuring ground to fall back on if anyone chokes now.
+
+oliverq: Well, I would say my improvement started in the middle of last year's 4dmwc. During that tournament we had 4 Rice acc players and 2 LN players causing us to constantly lose the LN maps and since Johnney was worse at LN, I had to play it ):. But I adjusted to it and ended up switching gears to LN because I preferred it so I've actually gotten worse on RC but Johnney, Neon, and diamondBlaze have all improved so I don't mind. The way I see it, Neon and diamond are as strong as ever, and Emik especially on SV plus me learning LN has helped a lot. I agree with Neon’s comment that it has been super fun to see people improve over the last three years.
+
+diamondBlaze: Neon is stronger than ever, I'm about the same haha
+
+oliverq: Which is still strong as shit haha!
+
+NeonDrakon: real!
+
+diamondBlaze: And yeah Emik is a legend who's been a long time coming, it's so cool to have him along.
+
+Last year, Sweden finished in its highest position in T-12th. Yet in every tournament Sweden has appeared in the 4DM series, Sweden has never gone past the QFs round. Do you guys think this will be the year Sweden can go to the SFs? Or perhaps go even further than SFs?
+
+Johnney101: We winning
+
+Lotus779: Definitely top 2. With amazing people like these, we will go far.
+
+diamondBlaze: Hmmm... It all depends on us beating Canada, not gonna lie LMAO. That's our RO16 match if we beat South Korea and I THINK it's doable... Obviously, Canada is sick though, they have tons of talent in the game.
+
+If we beat Canada, we have Malaysia, and I don't know how to be optimistic about that one... But even if we lose to Malaysia, we only have to win one match from there to get Top 8. So yeah, I think at least a 50% chance we make it to a new best? It's not gonna be easy though, still.
+
+NeonDrakon: I'm honestly not sure how far we can make it in bracket, especially with the new pool structure and having such a strong team against us in ro16 already in Canada. But all we can do is try our best and try to have fun and hope we make it far!
+
+diamondBlaze: If we get to Malaysia and then lose, we probably play: China, Indonesia, France, or Japan. But that's really hard to predict because that's if all other seeding goes to plan haha!
+
+***Is there a team you guys might be keeping an eye on? Considering that you'll be meeting Canada most likely in the Ro16 assuming if both teams win their Ro32 matches.***
+
+diamondBlaze: Japan for all the outlined reasons haha! It'd be like our 3rd match in 4DM I think.
+
+Johnney101: Japan. Mortal enemies but the chillest people alive.
+
+oliverq: For real, we are gonna call them mortal enemies and end the match with heart reactions!
+
+diamondBlaze: I just realized I got a mysterious DM a month ago that was like "heyyyy can't wait to see you guys in bracket". it was AxReo
+
+[https://lh7-us.googleusercontent.com/eyNmewj-0woL89b6ze0YeuLcc2-97wpx9ZzGcdbVVj2NgZpAMr4QCbmzZjxwDEBi6gUitmgQSgFH-lLYsiCpt69_fbgkhHku8zr9dk9d8ELVEDYUOO8xEoFRcUfTclz_aKAe6VyqI3B4M7RNT57gXNw](https://lh7-us.googleusercontent.com/eyNmewj-0woL89b6ze0YeuLcc2-97wpx9ZzGcdbVVj2NgZpAMr4QCbmzZjxwDEBi6gUitmgQSgFH-lLYsiCpt69_fbgkhHku8zr9dk9d8ELVEDYUOO8xEoFRcUfTclz_aKAe6VyqI3B4M7RNT57gXNw)
+
+Johnney101: HE KNOWS, BAN SV AT ALL COSTS. WE DON’T STAND A CHANCE. WE HAVE LEARNT THIS TWICE. WE DON’T HAVE A CHANCE AGAINST JAPAN ON SV!!!!
+
+diamondBlaze: NO! WE FIGHT LIKE MEN!
+
+Johnney101: But then again, third time’s the charm. PROTECT SVs AT ALL COSTS!!!!
+
+***Sounds like the Swedish & Japanese community has formed a nice bond over 4DM. But regardless, thank you for answering my questions and best of luck with 4DM24!***
+
+Lotus779: Thank you!
+
+NeonDrakon: Thank you, and good luck with everything for the Media Centre!
+
+Johnney101: Thanks for touhou tourney carry Pork
+
+diamondBlaze: Thanks Pork! Good luck with the Media Centre and have a good day!
+
+oliverq: Thanks for the interview!
+
+Russia
+
+***I am here with Russia! How are you guys doing?***
+
+wolfpup08: Very well :)
+
+DimonTheGood: All good.
+
+RobotHaKolecax: Studying at technical school.
+
+wolfpup08: Right now? :D
+
+RobotHaKolecax: Yes
+
+wolfpup08: lmao
+
+***So first off, I want to say congratulations on qualifying for 4DM24! One year ago, Russia finished in #34, just 2 spots short of qualifying. One year later, Russia has finished in Seed #15, almost 20 spots up! Any thoughts on the qualifiers?***
+
+DimonTheGood: Very sad. I missed on rc maps.
+
+RobotHaKolecax: We've got many new 4digit 4k players compared to the 2023. All our players except wolfpup08 are participating in 4DMWC for the first time. For example, a year ago I was like 5digit 4k and cleared 9th dan. But now I have delta dan pass. So the qualifiers were pretty easy for me.
+
+DimonTheGood: One year ago, I was 4th dan :fearful:
+
+wolfpup08: Thanks. I participated in the tournament in 2022 and Russian Federation qualified then too. This year me and RobotHaKolecax wanted to gather strong people. We have done that. The qualifications themselves have grown a lot in terms of difficulty. It was really hard to play it all perfectly. But we did a little bit above average, and I think that's good.
+
+***(To wolfpup08) Like Robot mentioned, you're the only player from Russia who is returning from 4DM 2022. So was there an explanation on why neither player from that 2022 roster returned for 2023 that resulted in a poor qualifiers performance from Russia in 4DM23?***
+
+wolfpup08: Hmmm… During 4DM23, I was in the army. 365 days I was gone. I don't know who was captain and how they selected people for 2023. But in 2024, I'm back and ready to compete in tournaments again.
+
+***So as the 15th seed team, you guys are going up against #18 Germany, which I am certain it will be a close match. But depending on who wins, you may run into #2 Malaysia. How will you guys prepare for potentially 2 tough matches in the first 2 weeks of competition?***
+
+DimonTheGood: PLAYMORE
+
+RobotHaKolecax: To be honest we have <1% chance for winning against Malaysia. But we'll try our best in the match against Germany.
+
+wolfpup08: Germany is a pretty close opponent to us. We will prepare depending on the best players in the team. Against Malaysia, it will already be difficult to outscore on skill. We will have to come up with complex tactics and play from the opponent's weaknesses.
+
+***That's awesome. I just want to say thank you guys so much for taking part in this interview! Congrats on qualifying and best of luck to you guys on 4DM!***
+
+wolfpup08: Thank you very much!
