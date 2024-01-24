@@ -38,7 +38,7 @@ romania did great though they had some really good rice scores.
 
 epic man 2: I think for me, the match went quite exceptional given that I was eagerly waiting to play the maps let alone playing well -- in qualifiers I figured that Romania was in the top 5 seed for rice maps, so it was surprising to me that my accuracy on the rice maps (Namely Mid-Air Heatstroke, kiss the sexy robot, brbyjpusr2vip, etc) and in other fields ended up being equal to theirs throughout. Especially with my nerves acting before it begun, lol
 
-- -Dragon–: Yeah, my nerves really came out on the first map.
+-Dragon–: Yeah, my nerves really came out on the first map.
 
 [ will ]: My nerves were off the bloody scale. It was my first time doing anything like this.
 
@@ -94,7 +94,7 @@ UK: Thank you!
 
 H1Pur: Pork, can I add in a shout out to Ame please? Thank you.
 
-[](https://lh7-us.googleusercontent.com/FbvgV2Nz2sF1PgNK2mMIbzJlG-aHsteAMY2rs5-H-z689me-1Gm2GrW-Bha8Z-B68P8XScfIZX2wAUkp5y5Ln5mS3gyZTFkL6-26DYdp-fwpKL5xUzf4AIxuCyoFbLM5Vq2kEgAL-vGHF7fZxA2Y0_4)
+![](https://lh7-us.googleusercontent.com/FbvgV2Nz2sF1PgNK2mMIbzJlG-aHsteAMY2rs5-H-z689me-1Gm2GrW-Bha8Z-B68P8XScfIZX2wAUkp5y5Ln5mS3gyZTFkL6-26DYdp-fwpKL5xUzf4AIxuCyoFbLM5Vq2kEgAL-vGHF7fZxA2Y0_4)
 
 *This article is not endorsed by Amelia Watson.*
 
