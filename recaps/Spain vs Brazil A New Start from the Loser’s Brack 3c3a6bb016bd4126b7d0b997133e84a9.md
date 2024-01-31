@@ -1,0 +1,47 @@
+# Spain vs Brazil: A New Start from the Loser’s Bracket!
+
+**A Quick Recap…**
+
+**Spain & Brazil** are both coming off from losses in their retrospective Round of 32 matches! Spain is coming off from a loss against the United States in the Ro32 match (0-5). Meanwhile, Brazil began their 4DM journey losing to Peru by Tiebreaker in Ro32 (4-5). These 2 teams are coming off from 2 different runs in 4DM23. Spain had a relatively short run, but in this round last year, won against Denmark by Tiebreaker in Ro16, but would ultimately get eliminated in QFs week. Brazil on the other hand, went through a **deep** run as they would go all the way to the Loser’s finals, ultimately finishing 4th against Canada via Tiebreaker. You can read the match highlights on that match right [here!](https://4digitmwc.github.io/media-centre/highlights/finals) In terms of rosters, White Hare & ERA Minikrimi are returning from last year’s Spain’s 4DM roster, and on Brazil, soutin is making his return from 4DM, last participated in 4DM4/4DM22, and Namirin-chan returning from 4DM3/4DM21! Aside from that however, no player from 4DM23 on the Brazil team is returning this year, as the rest of the roster are all new players making their 4DM debuts.
+
+**The Rundown**
+
+Spain would win the rolls and use this opportunity to protect RC5! Brazil on the other hand would pick **SV2** as their protect pick. Brazil, having the lower roll, would get first ban and would ban **RC3**. Spain would ban **SV1**. Now the protects & bans are out of the way, Spain would be the first team up to choose **RC4 (Mate Um Bonito Hoje Mesmo!)!** This was an interesting pick as in the first half, both teams were neck and neck on the scores, but Villanovinho would drop his combo at the start of the 2nd half, and that’s what Spain needed as they were able to take their own pick on RC4. **1-0 Spain.**
+
+Brazil is now up and they would choose **LN3 (Please)!** This pick would pay off big time as Brazil had a strong start that would never let go of the lead as they would win by 38k points. **1-1.**
+
+Now, Spain would be up after starting off 1-1, and they would pick **SV2 (Daisycutter)!** This was Brazil’s protect pick, and despite having an early lead in the start, Brazil was more consistent on the memorization of SV2 as they were able to breeze through the map with a 100k point deficit to take their first break point! **2-1 Brazil.**
+
+[https://lh7-us.googleusercontent.com/3TPl_8cqfm_KPYCKRt2HeOXCSUmW4cfWS6fKEupJE0YnNRaG8qJOSumPFHdPmIvfksEnaNCRpjC1V_EYvibusnOqr96AE2i15Q9vZmU4V9ekzip9991Ku1dxouD4Q6aMG03KClY2ojs3wAhwmttn2Ms](https://lh7-us.googleusercontent.com/3TPl_8cqfm_KPYCKRt2HeOXCSUmW4cfWS6fKEupJE0YnNRaG8qJOSumPFHdPmIvfksEnaNCRpjC1V_EYvibusnOqr96AE2i15Q9vZmU4V9ekzip9991Ku1dxouD4Q6aMG03KClY2ojs3wAhwmttn2Ms)
+
+*(Brazil taking the breakpoint on their own protect map, picked by Spain)*
+
+To capitalize on Spain’s mistakes on picking SV1. Brazil would pick their 2nd straight LN map, **LN1 (Amenohoakari)!** This LN map tests more on the consistency side of the LN skill set. Brazil had the team accuracy of 99.55% and that’s what they really needed as they were able to extend their lead. **3-1 Brazil.**
+
+Before their next pick, Spain would have their 2nd ban and they used it on **LN2!** Following their 2nd ban, Spain would pick **RC5 (Palette Lab)!** Despite **zKuri** was able to take the highest score in the lobby, narrowly beating out **Adrig3** by **24 points**, Spain had a much better supporting lineup as **Spain’s Team Captain cartografiar & ERA Minikrimi** was able to beat out **soutin & 1Nuttelinha1** to take their 2nd point, **3-2 Brazil.**
+
+Noticing a trend of Spain’s struggles with LNs in the Ro16 mappool, Brazil would pick another LN map: **LN4 (Beatrice)!** A map that has a good chunk of release patterns & some rice patterns spread throughout the map. Spain was at striking distance and had been keeping up with Brazil in the first quarter. But Brazil was able to hold down Spain as their accuracy stayed consistent with a team accuracy of 99.48% to keep the match with a 2 point lead. **4-2 Brazil.**
+
+Spain would be up and they would choose **RC2 (Show me your love)!** A stream map that’s also pretty long as the map is 3 minutes long! Despite struggles on the RC maps so far, Brazil was able to have a team FC after the first kiai. But **zKuri** would lose his combo on the rest section, extending Spain’s lead by **13k points.** But during the final kiai, Adrig3 would find a **drop** for Spain, cutting the lead down to **5k!** But fortunately for Spain, they were able to hold down Brazil as they were able to take their 3rd point. cartografiar would have a **V1 SS, scoring 995k! 4-3 Brazil.**
+
+Before their next map was picked, Brazil had the opportunity now to ban their 2nd map. With Brazil being 0-3 on RC maps, Brazil would ban **RC1!** Now that their pick is up, considering that they’re 3-0 on the LN maps, it’s obvious that Brazil wants to capitalize on getting their 5th point as they chose **LN5 (Scars of FAUNA)!** Almost similar with LN4 but adding a good chunk of density patterns, Brazil had a strong start that they never let go of, as **Brazil’s Team Captain namirin-chan, zKuri, & 1Nuttelinha1** all had FCs for Brazil as the team got their 5th point. 1 point away from eliminating Spain from 4DM24. **5-3 Brazil.**
+
+[https://lh7-us.googleusercontent.com/c7RWYYhscRUHxfDMYjIdO6npNjHR-ABQy-wPWWB0mO8oJNK70mOFwGx7Z6hwsvjWbwV_DQ4K6lh-VM67n7uZSkydwDYoQqSbm7f7foWv9d3DscJim7m1DuJnvq6KLszLMb5SIyOMadZmSrjY9t8xziY](https://lh7-us.googleusercontent.com/c7RWYYhscRUHxfDMYjIdO6npNjHR-ABQy-wPWWB0mO8oJNK70mOFwGx7Z6hwsvjWbwV_DQ4K6lh-VM67n7uZSkydwDYoQqSbm7f7foWv9d3DscJim7m1DuJnvq6KLszLMb5SIyOMadZmSrjY9t8xziY)
+
+*(What the mappool looks like after LN5)*
+
+With no more **RC & LN** maps being available, all of the **HB** maps are left standing for Spain & Brazil to pick. Spain is the first one up, and for their last pick to keep their tournament run going. Spain went with **HB1 (Silvia)!** One of the longest HB maps in the mappool, with the map being 4 minutes & 1 second long, Brazil was behind by 4k points until 1Nuttelinha1 broke at the 1/3 mark of the map. This extended Spain’s lead by 10k points and that’s what Spain needed to take their 4th point of the match, one point away from tiebreaker, but they needed to take a break point from Brazil to force the Tiebreaker. **5-4 Brazil.**
+
+Choosing from HB2, HB3, or HB4, Brazil would pick **HB4 (BEAST BASS BOMB)!** This HB map is tailored a bit more on the LN side, giving Brazil some hope they can be able to hold off Spain to take the match point. But despite having the team accuracy on their side, **1Nuttelinha1** would have **2 critical drops** that ultimately gave the lead to Spain, and just when Brazil was just at striking distance to retake the lead at the last second, **Namirin-chan would also drop his FC at the end!** Giving Spain their first break point, as they force a Tiebreaker against Brazil! **5-5!**
+
+***The essence of the Tiebreaker is here.*** As **GAME MAKE OVER** is the map that Spain & Brazil will have to play one more map to determine who will advance into the QFs week. Spain will go with the lineup of **cartografiar, Adrig3, & ERA Minikrimi!** While Brazil will go with **Namirin-chan, zKuri, & 1Nuttelinha1!**
+
+From the start of the map, things went south at the start for Spain, as cartografiar suffered an unusual break on an inverse pattern to start the map. This gives Brazil an **early lead** by the 400 combo cap with a 5k deficit. And things didn’t get better for Spain, as Adrig3 & cartografiar suffered breaks in the first half, where they broke on the LN sections. Fortunately for them, the 2nd half is a bit more Rice heavy, but unfortunately, Brazil was able to match Spain’s consistency on the RC section. **zKuri & ERA Minikrimi** would go on to FC the Tiebreaker, but **Namirin-chan & 1Nuttelinha1** was just a bit more consistent throughout the map. Being able to beat out **cartografiar & Adrig3** on the supporting scores. And at the end of the day, **Brazil was able to defeat Spain by the score of 6-5.**
+
+[https://lh7-us.googleusercontent.com/ZIrTfotNg0j-6TGuiHeYbc0yOFJzRWkOHvDBdXoED2NzTS3PMeO2-hz6WCuDX5y0UfdSN85czQsDV1c6PGAXVIupNzVdaMyScQphf0_S75kmD8U67sKSCUZfgPTXBVUcjaHLnmIfO0lzD4DO9LAJwGQ](https://lh7-us.googleusercontent.com/ZIrTfotNg0j-6TGuiHeYbc0yOFJzRWkOHvDBdXoED2NzTS3PMeO2-hz6WCuDX5y0UfdSN85czQsDV1c6PGAXVIupNzVdaMyScQphf0_S75kmD8U67sKSCUZfgPTXBVUcjaHLnmIfO0lzD4DO9LAJwGQ)
+
+*(Brazil defeats Spain on the Tiebreaker map.)*
+
+**Match Summary**
+
+This was an interesting battle as both teams are strong on different skill sets. Spain was able to sweep Brazil on the RC maps, while Brazil was able to capitalize on the LNs & SV2. Spain was able to take the Hybrid maps at the **most critical moment of the match**, forcing Brazil to play their **2nd Tiebreaker in a row**. But ultimately, **Brazil was able to hold off Spain from start to finish to take the victory overall.** Brazil will move on to the QFs, where meeting them will be **#7 Sweden.** And despite being eliminated, **Spain** had some stellar scores that can rival the best teams on rice maps. **And if they can improve on their LN performances, Spain can be a country to watch out for next year.**
