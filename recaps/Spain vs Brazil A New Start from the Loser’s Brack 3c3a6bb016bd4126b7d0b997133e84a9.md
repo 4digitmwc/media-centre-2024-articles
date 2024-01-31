@@ -12,7 +12,7 @@ Brazil is now up and they would choose **LN3 (Please)!** This pick would pay off
 
 Now, Spain would be up after starting off 1-1, and they would pick **SV2 (Daisycutter)!** This was Brazil’s protect pick, and despite having an early lead in the start, Brazil was more consistent on the memorization of SV2 as they were able to breeze through the map with a 100k point deficit to take their first break point! **2-1 Brazil.**
 
-[https://lh7-us.googleusercontent.com/3TPl_8cqfm_KPYCKRt2HeOXCSUmW4cfWS6fKEupJE0YnNRaG8qJOSumPFHdPmIvfksEnaNCRpjC1V_EYvibusnOqr96AE2i15Q9vZmU4V9ekzip9991Ku1dxouD4Q6aMG03KClY2ojs3wAhwmttn2Ms](https://lh7-us.googleusercontent.com/3TPl_8cqfm_KPYCKRt2HeOXCSUmW4cfWS6fKEupJE0YnNRaG8qJOSumPFHdPmIvfksEnaNCRpjC1V_EYvibusnOqr96AE2i15Q9vZmU4V9ekzip9991Ku1dxouD4Q6aMG03KClY2ojs3wAhwmttn2Ms)
+[](https://lh7-us.googleusercontent.com/3TPl_8cqfm_KPYCKRt2HeOXCSUmW4cfWS6fKEupJE0YnNRaG8qJOSumPFHdPmIvfksEnaNCRpjC1V_EYvibusnOqr96AE2i15Q9vZmU4V9ekzip9991Ku1dxouD4Q6aMG03KClY2ojs3wAhwmttn2Ms)
 
 *(Brazil taking the breakpoint on their own protect map, picked by Spain)*
 
