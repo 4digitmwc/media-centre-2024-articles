@@ -12,7 +12,7 @@ Brazil is now up and they would choose **LN3 (Please)!** This pick would pay off
 
 Now, Spain would be up after starting off 1-1, and they would pick **SV2 (Daisycutter)!** This was Brazil’s protect pick, and despite having an early lead in the start, Brazil was more consistent on the memorization of SV2 as they were able to breeze through the map with a 100k point deficit to take their first break point! **2-1 Brazil.**
 
-[](https://lh7-us.googleusercontent.com/3TPl_8cqfm_KPYCKRt2HeOXCSUmW4cfWS6fKEupJE0YnNRaG8qJOSumPFHdPmIvfksEnaNCRpjC1V_EYvibusnOqr96AE2i15Q9vZmU4V9ekzip9991Ku1dxouD4Q6aMG03KClY2ojs3wAhwmttn2Ms)
+![](https://lh7-us.googleusercontent.com/3TPl_8cqfm_KPYCKRt2HeOXCSUmW4cfWS6fKEupJE0YnNRaG8qJOSumPFHdPmIvfksEnaNCRpjC1V_EYvibusnOqr96AE2i15Q9vZmU4V9ekzip9991Ku1dxouD4Q6aMG03KClY2ojs3wAhwmttn2Ms)
 
 *(Brazil taking the breakpoint on their own protect map, picked by Spain)*
 
@@ -26,7 +26,7 @@ Spain would be up and they would choose **RC2 (Show me your love)!** A stream ma
 
 Before their next map was picked, Brazil had the opportunity now to ban their 2nd map. With Brazil being 0-3 on RC maps, Brazil would ban **RC1!** Now that their pick is up, considering that they’re 3-0 on the LN maps, it’s obvious that Brazil wants to capitalize on getting their 5th point as they chose **LN5 (Scars of FAUNA)!** Almost similar with LN4 but adding a good chunk of density patterns, Brazil had a strong start that they never let go of, as **Brazil’s Team Captain namirin-chan, zKuri, & 1Nuttelinha1** all had FCs for Brazil as the team got their 5th point. 1 point away from eliminating Spain from 4DM24. **5-3 Brazil.**
 
-[https://lh7-us.googleusercontent.com/c7RWYYhscRUHxfDMYjIdO6npNjHR-ABQy-wPWWB0mO8oJNK70mOFwGx7Z6hwsvjWbwV_DQ4K6lh-VM67n7uZSkydwDYoQqSbm7f7foWv9d3DscJim7m1DuJnvq6KLszLMb5SIyOMadZmSrjY9t8xziY](https://lh7-us.googleusercontent.com/c7RWYYhscRUHxfDMYjIdO6npNjHR-ABQy-wPWWB0mO8oJNK70mOFwGx7Z6hwsvjWbwV_DQ4K6lh-VM67n7uZSkydwDYoQqSbm7f7foWv9d3DscJim7m1DuJnvq6KLszLMb5SIyOMadZmSrjY9t8xziY)
+![](https://lh7-us.googleusercontent.com/c7RWYYhscRUHxfDMYjIdO6npNjHR-ABQy-wPWWB0mO8oJNK70mOFwGx7Z6hwsvjWbwV_DQ4K6lh-VM67n7uZSkydwDYoQqSbm7f7foWv9d3DscJim7m1DuJnvq6KLszLMb5SIyOMadZmSrjY9t8xziY)
 
 *(What the mappool looks like after LN5)*
 
@@ -38,7 +38,7 @@ Choosing from HB2, HB3, or HB4, Brazil would pick **HB4 (BEAST BASS BOMB)!** Thi
 
 From the start of the map, things went south at the start for Spain, as cartografiar suffered an unusual break on an inverse pattern to start the map. This gives Brazil an **early lead** by the 400 combo cap with a 5k deficit. And things didn’t get better for Spain, as Adrig3 & cartografiar suffered breaks in the first half, where they broke on the LN sections. Fortunately for them, the 2nd half is a bit more Rice heavy, but unfortunately, Brazil was able to match Spain’s consistency on the RC section. **zKuri & ERA Minikrimi** would go on to FC the Tiebreaker, but **Namirin-chan & 1Nuttelinha1** was just a bit more consistent throughout the map. Being able to beat out **cartografiar & Adrig3** on the supporting scores. And at the end of the day, **Brazil was able to defeat Spain by the score of 6-5.**
 
-[https://lh7-us.googleusercontent.com/ZIrTfotNg0j-6TGuiHeYbc0yOFJzRWkOHvDBdXoED2NzTS3PMeO2-hz6WCuDX5y0UfdSN85czQsDV1c6PGAXVIupNzVdaMyScQphf0_S75kmD8U67sKSCUZfgPTXBVUcjaHLnmIfO0lzD4DO9LAJwGQ](https://lh7-us.googleusercontent.com/ZIrTfotNg0j-6TGuiHeYbc0yOFJzRWkOHvDBdXoED2NzTS3PMeO2-hz6WCuDX5y0UfdSN85czQsDV1c6PGAXVIupNzVdaMyScQphf0_S75kmD8U67sKSCUZfgPTXBVUcjaHLnmIfO0lzD4DO9LAJwGQ)
+![](https://lh7-us.googleusercontent.com/ZIrTfotNg0j-6TGuiHeYbc0yOFJzRWkOHvDBdXoED2NzTS3PMeO2-hz6WCuDX5y0UfdSN85czQsDV1c6PGAXVIupNzVdaMyScQphf0_S75kmD8U67sKSCUZfgPTXBVUcjaHLnmIfO0lzD4DO9LAJwGQ)
 
 *(Brazil defeats Spain on the Tiebreaker map.)*
 
