@@ -84,11 +84,11 @@ Some may give us the impression that we are not going that far, but I sincerely 
 
 Namirin-chan: Our old members either stopped competing or were banned, so we had no choice but to have a "completely new" roster (because soutin and I have already played other editions).
 
-[https://lh7-us.googleusercontent.com/9ywiIblGp_kjMTJpPIEffHBKy9LOnqCBeE4AvgfJl1-t7qLtnnjO1UWa9jIkoZnBlOAbUcHwJ2NUzsX-WymLphtetIdZCNyPJOMtC3ZyNECrtTqtX00YAbjsKvDfbpn5UV_LQQlESrX2zm_SW5rEcwY](https://lh7-us.googleusercontent.com/9ywiIblGp_kjMTJpPIEffHBKy9LOnqCBeE4AvgfJl1-t7qLtnnjO1UWa9jIkoZnBlOAbUcHwJ2NUzsX-WymLphtetIdZCNyPJOMtC3ZyNECrtTqtX00YAbjsKvDfbpn5UV_LQQlESrX2zm_SW5rEcwY)
+![](https://lh7-us.googleusercontent.com/9ywiIblGp_kjMTJpPIEffHBKy9LOnqCBeE4AvgfJl1-t7qLtnnjO1UWa9jIkoZnBlOAbUcHwJ2NUzsX-WymLphtetIdZCNyPJOMtC3ZyNECrtTqtX00YAbjsKvDfbpn5UV_LQQlESrX2zm_SW5rEcwY)
 
 *(Namirin-chan on 4DM3/4DM21 Brazil roster)*
 
-[https://lh7-us.googleusercontent.com/z1AvrOh4hBxY3FjThOrWe4jl2LWUHdp-L5cmDD3_YCXI2IBiV_gHBa8ul6V0w7Q90GL6lXLiPg3QMMhBUi9fw69PR1HJ9DoJC_hMi5NgB-EymRB1lRNI8XYT3WrWTxqiSprDypIVcwlzpPpwZuLhaj0](https://lh7-us.googleusercontent.com/z1AvrOh4hBxY3FjThOrWe4jl2LWUHdp-L5cmDD3_YCXI2IBiV_gHBa8ul6V0w7Q90GL6lXLiPg3QMMhBUi9fw69PR1HJ9DoJC_hMi5NgB-EymRB1lRNI8XYT3WrWTxqiSprDypIVcwlzpPpwZuLhaj0)
+![](https://lh7-us.googleusercontent.com/z1AvrOh4hBxY3FjThOrWe4jl2LWUHdp-L5cmDD3_YCXI2IBiV_gHBa8ul6V0w7Q90GL6lXLiPg3QMMhBUi9fw69PR1HJ9DoJC_hMi5NgB-EymRB1lRNI8XYT3WrWTxqiSprDypIVcwlzpPpwZuLhaj0)
 
 *(soutin on 4DM4/4DM22 Brazil roster)*
 
@@ -156,7 +156,7 @@ CuB-03: 1) Well, the main reason I wasn't able to participate in 4DM23 is that i
 
 **As we approach the mid-game section of the tournament, you'll be facing off against the United States! This is a rematch from the Loser's SFs in 4DM22, where this country has stunned the #1 United States by winning via tiebreaker. But this time, it's Seed #4 vs #5, so it's going to be a evenly matched competition. How will you guys prepare for this rematch against the team that is seeking revenge on you guys for the damage on 4DM22?**
 
-[https://lh7-us.googleusercontent.com/J-Gy_X4NrrGqNlpphF_F8vBFsLOQmTVZpCbORcVr5AVaXEKL_6iImDrFVFWbFfd_OJEjvj1Ue4JnaDg1jGvsH8cqsupT4Hwm5NTTYSq9sP1Br7lgMShuX6rmk1e9xacJE6HeMkCw5oWShiZQGQJjty4](https://lh7-us.googleusercontent.com/J-Gy_X4NrrGqNlpphF_F8vBFsLOQmTVZpCbORcVr5AVaXEKL_6iImDrFVFWbFfd_OJEjvj1Ue4JnaDg1jGvsH8cqsupT4Hwm5NTTYSq9sP1Br7lgMShuX6rmk1e9xacJE6HeMkCw5oWShiZQGQJjty4)
+![](https://lh7-us.googleusercontent.com/J-Gy_X4NrrGqNlpphF_F8vBFsLOQmTVZpCbORcVr5AVaXEKL_6iImDrFVFWbFfd_OJEjvj1Ue4JnaDg1jGvsH8cqsupT4Hwm5NTTYSq9sP1Br7lgMShuX6rmk1e9xacJE6HeMkCw5oWShiZQGQJjty4)
 
 *(4DM4/4DM22: Philippines defeats United States via Tiebreaker in Loser’s SFs)*
 
