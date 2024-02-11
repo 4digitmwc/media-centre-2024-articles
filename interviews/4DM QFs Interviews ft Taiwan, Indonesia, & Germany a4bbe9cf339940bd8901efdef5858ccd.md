@@ -4,11 +4,11 @@
 
 **So congratulations on winning against the United Kingdom! This was a match that went all the way to the tiebreaker. Can I get your thoughts on your victory?**
 
-- **Veloce-:** Pretty happy not going to lie, but I've never thought of going on TB with the United Kingdom.
+**-Veloce-:** Pretty happy not going to lie, but I've never thought of going on TB with the United Kingdom.
 
 **amano_hina:** One of our players was not in good condition, and the game was very thrilling. We once allowed the opponent to get a match point, but I am very happy that we were able to secure the victory in the end.
 
-- **Veloce-:** And the player was diablorex xD
+**-Veloce-:** And the player was diablorex xD
 
 **diablorex1234:**
 
@@ -22,7 +22,7 @@
 
 **So for everyone here, next up you will be facing Malaysia. What is Taiwan's expectations for this match against a top team in the tournament?**
 
-- **Veloce-:** Hope Diablorex1234 never choke again. And hope we don't get fucked on LNs.
+**-Veloce-:** Hope Diablorex1234 never choke again. And hope we don't get fucked on LNs.
 
 **amano_hina:** Actually we think this will be a tough match for us, but we think we still have a tiny chance to win. Hope we will do better than our match this week, and get points as much as possible.
 
@@ -60,11 +60,11 @@
 
 **Reihynn:** In 4DM22, our team was waaaaaaayyyyyy too focused on SV. We lacked players, since one was an SV specialist and the other got an injury that made him quit. I was also really struggling back then on midgame since the skill level was so high. This year, the skill level is WAY higher than what I can do, so I'm really thankful to have teammates that are well-rounded so we can actually cover all of the skillsets. I came to this tourney to do early game rice, idk how I became sv main.
 
-[https://lh7-us.googleusercontent.com/hXeI1anyWTxM7zquCmVyXA_-9JvfFfPIxGdsl_Ii_oqzcIw2NgPPU1FVk_XFV-eMJV2iQ2N3TAHnRw0bCp5y8B3Q4fuiOzZ5vdVJZeSbNyoDZMtop6xVae8k8SFjeltUr7TB8iK-mrFeaInaZJ4KDEs](https://lh7-us.googleusercontent.com/hXeI1anyWTxM7zquCmVyXA_-9JvfFfPIxGdsl_Ii_oqzcIw2NgPPU1FVk_XFV-eMJV2iQ2N3TAHnRw0bCp5y8B3Q4fuiOzZ5vdVJZeSbNyoDZMtop6xVae8k8SFjeltUr7TB8iK-mrFeaInaZJ4KDEs)
+![](https://lh7-us.googleusercontent.com/hXeI1anyWTxM7zquCmVyXA_-9JvfFfPIxGdsl_Ii_oqzcIw2NgPPU1FVk_XFV-eMJV2iQ2N3TAHnRw0bCp5y8B3Q4fuiOzZ5vdVJZeSbNyoDZMtop6xVae8k8SFjeltUr7TB8iK-mrFeaInaZJ4KDEs)
 
 *iSxga on Indonesia’s 4DM23/4DM5 roster.*
 
-[https://lh7-us.googleusercontent.com/o1BFEXz8hxAQZ9tmCkXD9_DV87Rm1I53IPyyMNUAqwd4AWsC1D0kKfaMDANfrq2_vJcOqZEd20NKcfiMjBJ5uGLcHfd1R8KABPHzB_CMZ5OfcdXUy334RzDZKFNStwskL0GUTR1TPfwVZuTAiYHXK_c](https://lh7-us.googleusercontent.com/o1BFEXz8hxAQZ9tmCkXD9_DV87Rm1I53IPyyMNUAqwd4AWsC1D0kKfaMDANfrq2_vJcOqZEd20NKcfiMjBJ5uGLcHfd1R8KABPHzB_CMZ5OfcdXUy334RzDZKFNStwskL0GUTR1TPfwVZuTAiYHXK_c)
+![](https://lh7-us.googleusercontent.com/o1BFEXz8hxAQZ9tmCkXD9_DV87Rm1I53IPyyMNUAqwd4AWsC1D0kKfaMDANfrq2_vJcOqZEd20NKcfiMjBJ5uGLcHfd1R8KABPHzB_CMZ5OfcdXUy334RzDZKFNStwskL0GUTR1TPfwVZuTAiYHXK_c)
 
 *Reihynn on Indonesia’s 4DM22/4DM4 roster.*
 
