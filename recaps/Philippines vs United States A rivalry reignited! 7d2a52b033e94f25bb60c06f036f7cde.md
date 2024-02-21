@@ -22,7 +22,7 @@ Before their next pick, the United States would be up to make their next ban! An
 
 Following this loss, the Philippines will choose their own protect pick: **LN4 (Viden)**! This map started off very contested for the lead as both teams were neck and neck with each other at the first quarter of the map. But accuracy drops from **- Sky - & charlie72** would extend the lead to the Philippines. And unlike the **last 2 LN maps**, the Philippines looked really **comfortable** on Viden. Slowly extending their lead to 8k before - Sky - lost the full combo. Giving the way to the Philippines to go **4-0 on LNs**. Taking the LN sweep to win LN4 by 27.8k points. **4-4 Tie.**
 
-[https://lh7-us.googleusercontent.com/yxyQ2NViGKqSgndYP5rUUPiJX0Mqyjjs1JefVoMPj-4F4DXqT_Og1lfimnnJ8rQ-f3hG07gPGlHwgR7bx08RQEwimKqbdIRhcClC9iN_40_0ZXKsHMku_BxAHOEfhR535miGSqDKJIrmRgiZerfAUqw](https://lh7-us.googleusercontent.com/yxyQ2NViGKqSgndYP5rUUPiJX0Mqyjjs1JefVoMPj-4F4DXqT_Og1lfimnnJ8rQ-f3hG07gPGlHwgR7bx08RQEwimKqbdIRhcClC9iN_40_0ZXKsHMku_BxAHOEfhR535miGSqDKJIrmRgiZerfAUqw)
+![](https://lh7-us.googleusercontent.com/yxyQ2NViGKqSgndYP5rUUPiJX0Mqyjjs1JefVoMPj-4F4DXqT_Og1lfimnnJ8rQ-f3hG07gPGlHwgR7bx08RQEwimKqbdIRhcClC9iN_40_0ZXKsHMku_BxAHOEfhR535miGSqDKJIrmRgiZerfAUqw)
 
 *(What the mappool looks like after 8 picks, and 4 bans)*
 
@@ -36,7 +36,7 @@ Right off the gate, it’s not a good start for the US as **Tonels & charlie72**
 
 Heading into the 2nd half, a break from Silicosis 2 would slowly start decreasing their lead. And a break from [KN]Puddles on a burst pattern would reduce the score lead to 3k points. Before a Soir0116 would cut the lead very close as **for the first time on this map, we’re seeing a flicker lead back and forth from both teams!** A Tonels break would help extend the Philippines lead, but Soir0116 would trade a break, **giving the United States their first lead in the map with under a minute left to go heading into the final LN section!** But, tragedy strikes as charlie72 would find **multiple breaks** on the **final section** of the Tiebreaker. **Despite a full combo performance from - Sky -**, and everyone performing to their absolute best with fatigue on their fingers, and nerves at an all time high, the Philippines would ultimately pull away at the end. As they were able to defeat the United States by 7k points in the map. **The Philippines would defeat the United States by a score of 6-5.**
 
-[https://lh7-us.googleusercontent.com/LsOTNd6jREkTsVbMm6qsnas88awIvNUGlP0M5r6fIV4g7cneV5rUywpXFRNTtKoz94xRpvclixdm6cF_TvbiYza-9jEI0oCjbKP3PtHt_g7IeFd0sCA_9DKw8AqvnVvW5fColH2IMqCh3R0gdV8ppIY](https://lh7-us.googleusercontent.com/LsOTNd6jREkTsVbMm6qsnas88awIvNUGlP0M5r6fIV4g7cneV5rUywpXFRNTtKoz94xRpvclixdm6cF_TvbiYza-9jEI0oCjbKP3PtHt_g7IeFd0sCA_9DKw8AqvnVvW5fColH2IMqCh3R0gdV8ppIY)
+![](https://lh7-us.googleusercontent.com/LsOTNd6jREkTsVbMm6qsnas88awIvNUGlP0M5r6fIV4g7cneV5rUywpXFRNTtKoz94xRpvclixdm6cF_TvbiYza-9jEI0oCjbKP3PtHt_g7IeFd0sCA_9DKw8AqvnVvW5fColH2IMqCh3R0gdV8ppIY)
 
 *(Philippines defeats the United States on the tiebreaker map.)*
 
