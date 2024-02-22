@@ -22,7 +22,7 @@ Trying to avoid going down 5-2, Indonesia’s next map will be **LN5 (Seiren ~Hi
 
 Before the next map, Italy has the opportunity to ban another map from the mappool! Italy would ban **LN4 (idola)**. After that ban, Italy would pick **RC5 (Wolves Standing Towards Enemies)**! This pick from Italy didn’t start off well as **antony88fayah** would find a break, and a double break from **antony88fayah & angela202133** would extend Indonesia’s lead! And despite a **team reset** that happened from **Indonesia**, Italy couldn’t **capitalize** and respond with **more breaks**. Evening out the score gap that Indonesia would take a break point back, as they defeat Italy on RC5 by 17k points! **4-4 Tie.**
 
-[https://lh7-us.googleusercontent.com/45ZqIaVh2_WdGF0C-Vq_0nnDNx7wPS4g8m6M_G9tOFRNla7hozZCOPM3yKnZRaQl1z5bmEdOaqigwoTeMQQWkyu_3K1KdArn0dBZiGgW4FoNQ-KX_0WiOfP1lYCoNFf_HDmUonA6V4xHv9y-HYCg6ds](https://lh7-us.googleusercontent.com/45ZqIaVh2_WdGF0C-Vq_0nnDNx7wPS4g8m6M_G9tOFRNla7hozZCOPM3yKnZRaQl1z5bmEdOaqigwoTeMQQWkyu_3K1KdArn0dBZiGgW4FoNQ-KX_0WiOfP1lYCoNFf_HDmUonA6V4xHv9y-HYCg6ds)
+![](https://lh7-us.googleusercontent.com/45ZqIaVh2_WdGF0C-Vq_0nnDNx7wPS4g8m6M_G9tOFRNla7hozZCOPM3yKnZRaQl1z5bmEdOaqigwoTeMQQWkyu_3K1KdArn0dBZiGgW4FoNQ-KX_0WiOfP1lYCoNFf_HDmUonA6V4xHv9y-HYCg6ds)
 
 *(What the mappool looked like after 8 picks, and 4 bans)*
 
@@ -36,13 +36,13 @@ After being up 4-2, Italy has lost the last 3 maps. And in order to avoid elimin
 
 **The theme for the tiebreaker right now is Italy is outperforming on accuracy, but consistency is their concern as the entire team drops their combos!**
 
-[https://lh7-us.googleusercontent.com/pq1y5uCGHARSAntM9lQBPoKIa_KB5hYvcv1qPFSYsKKwp7Q_l131zC4_yvWvJCbS7AptuRdFSDaBz-h7WkF4rkOllcmTPfY6XEe8oGIUS1q8D27N66u9i0DUx4rKLPIWjuKTB6rg5C_OrblOos5lE_8](https://lh7-us.googleusercontent.com/pq1y5uCGHARSAntM9lQBPoKIa_KB5hYvcv1qPFSYsKKwp7Q_l131zC4_yvWvJCbS7AptuRdFSDaBz-h7WkF4rkOllcmTPfY6XEe8oGIUS1q8D27N66u9i0DUx4rKLPIWjuKTB6rg5C_OrblOos5lE_8)
+![](https://lh7-us.googleusercontent.com/pq1y5uCGHARSAntM9lQBPoKIa_KB5hYvcv1qPFSYsKKwp7Q_l131zC4_yvWvJCbS7AptuRdFSDaBz-h7WkF4rkOllcmTPfY6XEe8oGIUS1q8D27N66u9i0DUx4rKLPIWjuKTB6rg5C_OrblOos5lE_8)
 
 *(Team Italy finding a team reset on the tiebreaker)*
 
 This lead has been cut down from **14k to 2k points**, but **nayuu** and **iSxga** will also drop their combos, but before you know it, **Italy is still holding on to their lead**! A lot of drops are happening between 5 players, but **Rakanovan** is holding on to his combo since the second half! Indonesia is closing in on the lead and they needs a few more breaks from Italy to take the lead this late in the map. But then: **heartbreak**. **Rakanovan** drops his combo and the score lead goes back to Italy as they extend their lead from **2k to 9k points**. **Italy’s accuracy game was strong enough to hold off Indonesia’s consistency as Italy would take the final point of the match.** **Italy will defeat Indonesia by a score of 6-5.**
 
-[https://lh7-us.googleusercontent.com/qE_thgMTCR1Lc-cOXOKC-eXMzg31rwaAZJ5Ei_WcHjuPuO1O9RyrqxKzC88mDXFwRPFSf-HejQCjhHfPk2g8E3_boyNF3Be-a4Ux_5PggRgPX38vVycuLvwJwtinyC6mr-9-1kLX5nmXvtmOklxLfaE](https://lh7-us.googleusercontent.com/qE_thgMTCR1Lc-cOXOKC-eXMzg31rwaAZJ5Ei_WcHjuPuO1O9RyrqxKzC88mDXFwRPFSf-HejQCjhHfPk2g8E3_boyNF3Be-a4Ux_5PggRgPX38vVycuLvwJwtinyC6mr-9-1kLX5nmXvtmOklxLfaE)
+![](https://lh7-us.googleusercontent.com/qE_thgMTCR1Lc-cOXOKC-eXMzg31rwaAZJ5Ei_WcHjuPuO1O9RyrqxKzC88mDXFwRPFSf-HejQCjhHfPk2g8E3_boyNF3Be-a4Ux_5PggRgPX38vVycuLvwJwtinyC6mr-9-1kLX5nmXvtmOklxLfaE)
 
 *(Italy defeats Indonesia on the tiebreaker map.)*
 
